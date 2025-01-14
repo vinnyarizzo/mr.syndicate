@@ -1,2 +1,2 @@
 # mr.syndicate
-owner of www.syndicateproductions.org or www.synfilmschool.com
+visit my website owner of www.syndicateproductions.org or www.synfilmschool.com
